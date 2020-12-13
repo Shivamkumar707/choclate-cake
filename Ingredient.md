@@ -1,0 +1,1 @@
+Egg 4, powdered sugar 1 cup, salt 1/4 teaspoon, Baking soda 1/4 teaspoon, Baking powder 1 & 1/2 teaspoon, Cocoa Powder 1/2 cup, Vegetable oil 3/4 cup,Vanilla Essemce one and half teaspoon.
